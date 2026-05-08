@@ -1,4 +1,4 @@
-
+Get the ultimate Fantastical for macOS addon with Fantastical for macOS exclusive Addon: voice notes & dark mode. Featuring voice notes and dark mode, it's the best choice for
 
 
 
